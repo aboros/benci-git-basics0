@@ -1,0 +1,1 @@
+szia benci ez az elso file. 
