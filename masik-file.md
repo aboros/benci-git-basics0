@@ -1,0 +1,1 @@
+szia benci, ez itt a masik file. 
